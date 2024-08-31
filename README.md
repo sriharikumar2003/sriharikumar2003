@@ -7,7 +7,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/196oMIRvArnvmcFBzk2wUhZ_U1HXwjk4A/view?usp=drive_link](https://drive.google.com/file/d/196oMIRvArnvmcFBzk2wUhZ_U1HXwjk4A/view?usp=drive_link)
 
-- ⚡ Fun fact **I think (I am still thinking...)**
+- ⚡ Fun fact : **I think (I am still thinking...)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
