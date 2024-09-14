@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **sriharikumar.0903@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/196oMIRvArnvmcFBzk2wUhZ_U1HXwjk4A/view?usp=drive_link](https://drive.google.com/file/d/196oMIRvArnvmcFBzk2wUhZ_U1HXwjk4A/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/196oMIRvArnvmcFBzk2wUhZ_U1HXwjk4A/view?usp=drive_link](https://drive.google.com/file/d/1hSHhbLoGSPKaSJXDJIcAmKb95Lkg7GTG/view?usp=sharing)
 
 - ⚡ Fun fact : **I think (I am still thinking...)**
 
